@@ -1,0 +1,1 @@
+Lamsat Oman origin verification
